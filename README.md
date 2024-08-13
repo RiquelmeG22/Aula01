@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Python, Mysql.
 - 💞️ I’m looking 
 - 📫 How to reach me ...@riquelmee22
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... oi kkkk
